@@ -1,1 +1,1 @@
-Check description ---> Will update later
+Check 'About' ---> Will update later
